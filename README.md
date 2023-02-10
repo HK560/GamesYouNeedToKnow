@@ -3,7 +3,7 @@ These games you have to know.
 
 All based on my tastes.
 
-*Trust me, they're all good games.*
+**Trust me, they're all good games.**
 
 Keep adding....
 
