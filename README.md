@@ -20,3 +20,12 @@ Keep adding....
 - ACE COMBAT™ 7: SKIES UNKNOWN
 - DAEMON X MACHINA
 - The Elder Scrolls V: Skyrim Special Edition
+- SIGNALIS
+- FIREWATCH
+- NieR:Automata™
+- Project Wingman
+- Assetto Corsa
+- Dying Light
+- Garry's Mod
+- Grand Theft Auto IV
+- TALES OF RAISE
